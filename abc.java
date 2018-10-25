@@ -17,3 +17,10 @@ https://www.ibpsguide.com/data-interpretation-pdf");
 	    
 	}
 }
+fdhsgmndfkjfs
+bkl;fbgfglk;fgb
+fhn,mmlfg
+fgfmfghl
+
+hngflk,;ghffgjhg
+\/'.,ghdn,mgh;
